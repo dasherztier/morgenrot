@@ -1,6 +1,11 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+<img width="768" height="656" alt="Screenshot 2026-10-07 190542" src="https://github.com/user-attachments/assets/c86aa20e-48c6-4816-9112-b5036b003afb" />
+<img width="808" height="839" alt="Screenshot 2026-10-07 190518" src="https://github.com/user-attachments/assets/29846d2a-47f9-4039-973e-b65545f1869a" /> 
+
+october 7 2026. "new dess design" and it's just evan from everymanhybrid
+
 <img width="1079" height="730" alt="image" src="https://github.com/user-attachments/assets/b2d8d46f-e5e1-4deb-ac87-29dea6061ba4" />
 
 september 22 2026. the place where it snowed or some shi (wintryrune by [wasp](https://github.com/chunglets))
@@ -11,11 +16,12 @@ september 18 2026. based off of a everymanhybrind episode. something something 7
 
 <img width="800" height="942" alt="image" src="https://github.com/user-attachments/assets/d11b53cd-69c3-4ddd-a4db-030faa6db81a" />
 
-wip. the glass has shattered
+wip that i don't feel like finishing, sorry 
 
-<img width="1028" height="797" alt="image" src="https://github.com/user-attachments/assets/de5da0ad-a85c-4391-911f-ea8dc1ff400d" /> <img width="1133" height="831" alt="image" src="https://github.com/user-attachments/assets/446fb4c2-9668-43bf-844b-57342a019229" />
+<img width="1028" height="797" alt="image" src="https://github.com/user-attachments/assets/de5da0ad-a85c-4391-911f-ea8dc1ff400d" /> 
 
-wip been working on this for a while
+wip that cannot be finished because i can't open the file for some reason.... i miiiiiiigght redo this one if i feel like it though
+
 
 <img width="1109" height="898" alt="image" src="https://github.com/user-attachments/assets/9a4956c3-9239-454c-8b76-c1981d69ff0f" />
 
