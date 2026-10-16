@@ -1,6 +1,12 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+<img width="794" height="771" alt="Screenshot 2026-10-15 030113" src="https://github.com/user-attachments/assets/11794e56-1819-4f0c-8f22-8109b269c125" />
+
+october 15 2026. whatever go my bootlegrune (au by me!!)
+
+magma truly saves lives
+
 <img width="768" height="656" alt="Screenshot 2026-10-07 190542" src="https://github.com/user-attachments/assets/c86aa20e-48c6-4816-9112-b5036b003afb" />
 <img width="808" height="839" alt="Screenshot 2026-10-07 190518" src="https://github.com/user-attachments/assets/29846d2a-47f9-4039-973e-b65545f1869a" /> 
 
