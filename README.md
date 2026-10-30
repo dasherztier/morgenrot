@@ -1,6 +1,12 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+<img width="902" height="896" alt="halloween kriselle full" src="https://github.com/user-attachments/assets/618f013e-ef3d-457a-a296-5c2f1e667f53" />
+
+october 28-29 2026. ghostface eram kris and icee leatherface noelle :P (iceelle design by [wasp](https://github.com/chunglets)) 
+ 
+SUPER happy with this one!! might as well add a background, lighting too good
+
 <img width="794" height="771" alt="Screenshot 2026-10-15 030113" src="https://github.com/user-attachments/assets/11794e56-1819-4f0c-8f22-8109b269c125" />
 
 october 15 2026. whatever go my bootlegrune (au by me!!)
